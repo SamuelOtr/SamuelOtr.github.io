@@ -1,2 +1,0 @@
-# SamuelOtr.github.io
-Hola
